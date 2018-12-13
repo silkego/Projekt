@@ -6,6 +6,8 @@ ZB MED
 ##Dezember 2018
 12.12.2018
 ##mehr Infos
+Mitgliedskarten mitbringen und
+Kekse für WEIHNACHTSFEIER
 
 
 
